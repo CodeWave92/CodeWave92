@@ -10,7 +10,7 @@
 
 #### 📃 - Nossa habilidade em analisar e resolver problemas complexos, é aliada com o compromisso da qualidade de código em destaque como profissionais.
 
-#### 📱 Estamos constantemente atualizados nas últimas tendências tecnológicas e focando em contribuir para o sucesso dos projetos.
+#### 📱 - Estamos constantemente atualizados nas últimas tendências tecnológicas e focando em contribuir para o sucesso dos projetos.
 
 #
 
