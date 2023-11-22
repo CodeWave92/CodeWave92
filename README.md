@@ -1,4 +1,4 @@
-### 👋🏻 Bem-vindo(a) nosso perfil!
+### 👋🏻 Bem-vindo(a) ao nosso perfil!
 
 #
 
